@@ -4,4 +4,7 @@ Hello,Konichiwa and Annyeonghaseyo!! I'm 🌸🐲Lady Dragon yoroshiku!!🐉🌸
 
 ![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/da630110-bae0-41e2-a36a-5a6d0664da8c)
 
-![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/194be8a4-efee-4430-b52b-395294262b36)
+![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/948e85bd-e140-471b-9125-cf4ae082e79b)
+
+![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/d9879fae-c120-4d98-bceb-0c4f3ef86f38)
+
