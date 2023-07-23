@@ -8,4 +8,4 @@ Hello,Konichiwa and Annyeonghaseyo!! I'm 🌸🐲Lady Dragon yoroshiku!!🐉🌸
 
 ![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/d9879fae-c120-4d98-bceb-0c4f3ef86f38)
 
-![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/f7fc55db-e7f4-4341-ab18-26c6c948f173)
+
