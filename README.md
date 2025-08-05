@@ -8,4 +8,3 @@ Hello,Konichiwa and Annyeonghaseyo!! I'm 🌸🐲Lady Dragon yoroshiku!!🐉🌸
 
 ![image](https://github.com/Yvonnelim99/Yvonnelim99/assets/135589634/d9879fae-c120-4d98-bceb-0c4f3ef86f38)
 
-https://gudetea.github.io/FruitCard-Odyssey/?fbclid=IwY2xjawL-6HNleHRuA2FlbQIxMABicmlkETFEbWtiRnZrUWtYbHJDc1pnAR50dVZgxE-2jzFL4q1hf7on8a2QEO0C_tHDJCdewcdREXoj_0EyaOl7XX8hmA_aem_OxkGqmtRzZvM_id30RaMow
